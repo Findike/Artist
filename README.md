@@ -20,4 +20,4 @@ Welcome to the official artist hub of FINDIKE. Bridging the deep emotive landsca
 - **Bandcamp:** https://findike.bandcamp.com/
 - **Instagram:** https://www.instagram.com/findikemusic/
 - **Facebook:** https://www.facebook.com/findikeofficial/
-- **Official Press Kit (EPK):** [Download / View PDF](https://github.com)
+- **Official Press Kit (EPK):** [Download / View PDF](https://githubusercontent.com)
