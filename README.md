@@ -5,7 +5,7 @@ Welcome to the official artist hub of FINDIKE. Bridging the deep emotive landsca
 
 ## 🎧 Artistic Philosophy & Core Stats
 - **100% Human-Made:** Firmly committed to hardware synergy, live synthesizer performance, and zero AI involvement in music production.
-- **Global Footprint:** Over 400+ original productions, 20M+ views on TikTok driven by the hit single "Passenger", and 900K+ organic YouTube views.
+- **Global Footprint:** 400+ original productions, 2M+ streams on Spotify, 20M+ views on TikTok driven by the hit single "Passenger", and 900K+ organic YouTube views.
 - **Industry Support:** Track premieres featured by Electronic Groove Magazine ("Tribal Soul of Cuba") and music distributed via AMPSuite, Beatport, and Proton Music.
 
 ## 🔗 Official Artist Hub
