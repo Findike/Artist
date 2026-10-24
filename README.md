@@ -11,6 +11,7 @@ Welcome to the official artist hub of FINDIKE. Bridging the deep emotive landsca
 ## 🔗 Official Artist Hub
 - **Website:** https://findike.com/
 - **Spotify:** https://open.spotify.com/artist/7GVl33JzZT3tIVtEjLb00r
+- **Apple Music:** https://music.apple.com/us/artist/findike/879830558
 - **Beatport:** https://www.beatport.com/artist/findike/410453
 - **SoundCloud:** https://soundcloud.com/findike
 - **YouTube:** https://www.youtube.com/@Findike
